@@ -10,5 +10,7 @@ Com o Projeto SSQ, estamos botando fé em um jeito novo de aprender. Vamos usar 
 
 Vai ser demais ver a galera crescendo, aprendendo e fazendo amigos no nosso projeto. Queremos mostrar que a diversidade é incrível e que todos têm algo especial para compartilhar. Vamos nessa, porque essa jornada vai ser demais!
 
+Site do Blogger: https://socialskquest.blogspot.com/2023/09/introducao-ao-projeto.html
+
 Abraços,
 A Equipe do Projeto SSQ
